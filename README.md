@@ -2,7 +2,7 @@ None of this is a virus i swear
 
 "nebula" and my server
 
----> https://discord.gg/XR99Zu9PEC <--- boost = add mod here
+---> https://discord.gg/XR99Zu9PEC <--- boost = add mod to this github page
 
 
 if u read this ur legally a furry (not me tho)
