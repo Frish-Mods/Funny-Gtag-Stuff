@@ -2,7 +2,8 @@ None of this is a virus i swear
 
 "nebula" and my server
 
----> https://discord.gg/XR99Zu9PEC <--- epic fo gtag stuff
+---> https://discord.gg/XR99Zu9PEC <--- boost = add mod here
+
 
 if u read this ur legally a furry (not me tho)
 
