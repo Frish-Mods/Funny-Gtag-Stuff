@@ -1,16 +1,11 @@
-None of this is a virus i swear
+This isnt gtag mods only
 
-"nebula" and my server
-
----> https://discord.gg/XR99Zu9PEC <--- boost = add mod to this github page
+Gtag Mods At - https://discord.gg/p8Nch5rDFJ
 
 
 if u read this ur legally a furry (not me tho)
 
 im just messing around
-
-
-Salinewin is the name of my monke mod manager revamp
 
 
 shiba gold
